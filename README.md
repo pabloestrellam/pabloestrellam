@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @pabloestrellam
-- 👀 I’m interested in coding, games, cryto
+- 👀 I’m interested in coding, games and crypto
 - 🌱 I’m currently learning to code
 - 💞️ I’m looking to collaborate on any project 
 - 📫 How to reach me pabloestrellam@hotmail.com or twitter: @pabloestrellam
